@@ -1,2 +1,2 @@
 # periode-4
-dit is allemaal wat ik in periode 4 heb gedaan
+dit is wat ik heb gedaan waar ik trots op werd
